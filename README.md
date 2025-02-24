@@ -21,7 +21,7 @@
 ## Veja algumas coisas que fiz (e como fiz)
 [Portfólio](https://mtharruda.github.io/portfolio/)
 
-## Quer entrar em contat comigo?
+## Quer entrar em contato comigo?
 [E-mail](arrudamthh@gmail.com)<br>
 [Linkedin](https://www.linkedin.com/in/matharruda/)<br>
 [Instagram](https://www.instagram.com/arrudamth/)<br>
